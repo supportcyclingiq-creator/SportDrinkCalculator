@@ -4,7 +4,7 @@ Calculadora para preparar tu propia bebida deportiva casera: carbohidratos, elec
 
 ## ¿Necesitas ayuda?
 
-Escríbenos a **jorgegarcia77@gmail.com** y te respondemos lo antes posible.
+Escríbenos a **supportcyclingiq@gmail.com** y te respondemos lo antes posible.
 
 ## Preguntas frecuentes
 
